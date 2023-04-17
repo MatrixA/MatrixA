@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on leading a happy life
 - 🤔 I’m looking for help with photography
 - 💬 Ask me about everything,Member of @PaoPaoRobot
-- 📫 How to reach me: [zhihu](https://www.zhihu.com/people/zhou-fu-nan-70)
+- 📫 How to reach me: 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 
 
